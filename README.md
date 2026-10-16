@@ -1,0 +1,1 @@
+# isletim-sistemi-minios-qr-eklentili-v4
